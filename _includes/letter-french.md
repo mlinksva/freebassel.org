@@ -6,7 +6,7 @@ Depuis, Bassel s’est fait connaître dans le monde entier par son engagement r
 
 Depuis son arrestation, le précieux travail de Bassel comme contributeur bénévole, que ce soit en Syrie ou dans le monde entier, s’est interrompu. Son absence a été durement ressentie pour les communautés qui dépendent de lui. En outre, sa famille et sa femme ne vivent plus que dans une attente angoissante.
 
-Le Groupe de Travail sur la détention arbitraire ( organisme composé d'experts indépendants mandaté par l'Organisation de Nations Unis ) a rendu un avis concluant au caractère arbitraire de l'arrestation et de l'emprisonnement de Bassel Khartabil ainsi qu'a la violation du droit international que ceux-ci constituent. Le Groupe de Travail sur la détention arbitraire a, suite à ces conclusions, demandé que Bassel Khartabil soit immédiatement libéré. 
+Le Groupe de Travail sur la détention arbitraire ( organisme composé d'experts indépendants mandaté par l'Organisation de Nations Unis) a rendu un avis concluant au caractère arbitraire de l'arrestation et de l'emprisonnement de Bassel Khartabil ainsi qu'a la violation du droit international que ceux-ci constituent. Le Groupe de Travail sur la détention arbitraire a, suite à ces conclusions, demandé que Bassel Khartabil soit immédiatement libéré. 
 
 Nous, signataires de la campagne #FREEBASSEL, exigeons immédiatement des informations sur ses conditions de détention, sa santé et son état psychologique.
 
