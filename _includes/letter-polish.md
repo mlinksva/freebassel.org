@@ -1,4 +1,4 @@
-15 marca 2012 Bassel Khartabil został zatrzymany podczas fali aresztować w Mazzeh, dzielnicy Damaszku. Od tego czasu jego rodzina nie otrzymała informacji na temat oficjalnego powodu jego aresztowania, ani miejsca pobytu. 
+15 marca 2012 Bassel Khartabil został zatrzymany podczas fali aresztować w Mazzeh, dzielnicy Damaszku. He is currently being held at Adra Prison in Damascus by the Syrian government.
 
 31-letni Bassel Khartabil, Paleńczyko-Syryjczyk , jest programistą specjalizującym się w rozwijaniu otwartego oprogramowania. Działania takich ludzi, jak Bassel był podstawą to powstania sieci Internet. Bassel swoją pracę rozpoczął 10 lat temu w Syrii, pomagając wielu lokalnym organizacjom W ich działaniach, jak np. restauracji Palmiry, lub Forward Syria Magazine.
 
@@ -6,9 +6,9 @@ Dzięki swojej pracy i zaangażaowaniu w rozwój otwartej sieci, wpieraniu wielu
 
 Od momentu aresztowania, jego praca w syryjskich i międzynarodowych projektach, została wstrzymana. 
 
-W kwietniu 2012 Bassel miał wziąć ślub ze swoją narzeczoną. Całe życie jego rodziny utknęło w martwym punkcie. Uległo wstrzymaniu.
+In addition, his family, and his wife, have had their lives put on hold.
 
-Bassel Khartabil został niesprawiedliwie zatrzymany i przetrzymywany przez wiele miesięcy bez procesu ani informacji o wymierzonych przeciwko niemu oskarżeniach. 
+The United Nations Working Group on Arbitrary Detention has determined that Bassel's arrest and imprisonment were arbitrary and in violation of international law, and has asked for his immediate release.
 
 My, podpisani pod tą petycją, domagamy się natychmiastowego podania informacji na temat powodów jego zatrzymania, stanu zdrowia i psychicznej kondycji.
 
