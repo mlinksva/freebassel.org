@@ -9,7 +9,7 @@ GLOBAL - Monday, 30 January 2017 - The #FREEBASSEL campaign denounces an executi
 
 The #FREEBASSEL campaign is committed to the safe release and refuge of Bassel Khartabil, a Syrian human rights and open technology activist who has been detained without trial by the Syrian regime since 15 March 2012, and disappeared since 3 October 2015. The MIT Media Lab has offered Khartabil a research scientist position in the Media Lab's Center for Civic Media on projects that make Syria's history accessible to the world, including resumption of Khartabil's work on digital 3-D reconstruction of ancient Palmyra, one of the sites raided and destroyed by the Islamic State of Iraq and Syria (ISIS).
 
-The executive order would prevent Bassel Khartabil from traveling to the United States to continue this vital work, and needlessly places him in further danger. It would be a loss to the academic and scientific communities of the United States if Khartabil were to forfeit his position at MIT and continue his research in a friendlier jurisdiction.
+The executive order would prevent Bassel Khartabil from traveling to the United States to continue this vital work, and needlessly places him in further danger. It would be a loss to the academic and scientific communities of the United States were Khartabil to forfeit his position at MIT and continue his research in a friendlier jurisdiction.
 
 Few of the millions of victims of oppressive regimes in the Middle East and elsewhere are backed as invididuals by global movements like the #FREEBASSEL campaign. These people include Khartabil's family, friends, and colleagues in Syria, similar human rights activists around the world, and all people struggling to escape oppression and terror.
 
