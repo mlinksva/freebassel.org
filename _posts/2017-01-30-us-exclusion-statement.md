@@ -5,15 +5,15 @@ categories: [ statements ]
 tags: [ headline ]
 ---
 
-GLOBAL - Monday, 30 January 2017 - The #FREEBASSEL movement denounces an executive order issued by the President of the United States that suspends the U.S. Refugee Admissions Program (USRAP) for 120 days as well as entry of people from Iraq, Iran, Libya, Somalia, Sudan, and Yemen for 90 days and from Syria indefinitely, regardless of visa.
+GLOBAL - Monday, 30 January 2017 - The #FREEBASSEL campaign denounces an executive order issued by the President of the United States that suspends the U.S. Refugee Admissions Program (USRAP) for 120 days as well as entry of people from Iraq, Iran, Libya, Somalia, Sudan, and Yemen for 90 days and from Syria indefinitely, regardless of visa.
 
-Bassel Khartabil is a Syrian human rights and open technology activist who has been detained without trial by the Syrian regime since 15 March 2012, and disappeared since 3 October 2015. MIT Media Lab has offered Khartabil a research scientist position in the Media Lab's Center for Civic Media on projects that make Syria's history accessible to the world, including resumption of Khartabil's work on digital 3-D reconstruction of ancient Palmyra, one of the sites raided and destroyed by the Islamic State of Iraq and Syria (ISIS).
+The #FREEBASSEL campaign is committed to the safe release and refuge of Bassel Khartabil, a Syrian human rights and open technology activist who has been detained without trial by the Syrian regime since 15 March 2012, and disappeared since 3 October 2015. The MIT Media Lab has offered Khartabil a research scientist position in the Media Lab's Center for Civic Media on projects that make Syria's history accessible to the world, including resumption of Khartabil's work on digital 3-D reconstruction of ancient Palmyra, one of the sites raided and destroyed by the Islamic State of Iraq and Syria (ISIS).
 
-The executive order would prevent a free Bassel Khartabil from traveling to the U.S. to continue this vital work and needlessly place him in further danger. Khartabil has friends around the world, who would likely find a free Bassel a friendlier jurisdiction from which to live and work. This would be a loss to the U.S., and any further delay would be a loss to the world.
+The executive order would prevent Bassel Khartabil from traveling to the United States to continue this vital work, and needlessly places him in further danger. It would be a loss to the academic and scientific communities of the United States if Khartabil were to forfeit his position at MIT and continue his research in a friendlier jurisdiction.
 
-Few of the millions of victims of oppressive regimes in the Middle East and elsewhere are backed as invididuals by global movements. These people include Khartabil's family, friends, and colleagues in Syria, similar human rights activists around the world, and all people struggling to escape oppression and terror - to live.
+Few of the millions of victims of oppressive regimes in the Middle East and elsewhere are backed as invididuals by global movements like the #FREEBASSEL campaign. These people include Khartabil's family, friends, and colleagues in Syria, similar human rights activists around the world, and all people struggling to escape oppression and terror.
 
-In support of a free Bassel Khartabil and in solidarity with these millions, the #FREEBASSEL movement denounces the U.S. executive order and urges support of all legal efforts to permanently and completely overturn the order, including those of the American Civil Liberties Union.
+In support of a free Bassel Khartabil and in solidarity with these millions, the #FREEBASSEL campaign denounces the U.S. executive order on the seven-nation ban and refugee suspension, and urges support for all legal efforts to permanently and completely overturn the order, including those of the American Civil Liberties Union.
 
 ## Resources
 
